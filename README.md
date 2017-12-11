@@ -1,2 +1,1 @@
-# medicinal-gun
-medicinal gun project CL3011
+# medicinal gun project

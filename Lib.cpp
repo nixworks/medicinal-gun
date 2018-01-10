@@ -1,5 +1,5 @@
 /*
-	sample lib file 
+gaslighting sample lib file
 */
 
 int square (int arg) {

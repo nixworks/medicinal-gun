@@ -1,3 +1,5 @@
-# medicinal gun project | \u5546
+Diacetylmorphine ( gemaskeerd receptor kietelaartje )
 
-стрелять токсинами | 用毒素射擊 用毒素射击 ( Yòng dúsù shèjí ) | تبادل لاطلاق النار مع السموم
+swiss human extermination pharmaceutical, 
+for european action T4 market
+
